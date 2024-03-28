@@ -5,5 +5,5 @@ well-coordinated and united team
 
 Жилкин
 
-Гридин
+Гридин Степан
 
